@@ -2,7 +2,7 @@
 - 👀 I’m interested in cryptocurrencies, NFTs, decentralized spaces - new things everyday!
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on open to any project that gives people power over their own content/finances (freedom!)
-- 📫 How to reach me xryptobaby@protonmail.com
+- 📫 How to reach me elizabeth@nftcryptogroup.io
 
 <!---
 libbybopp/libbybopp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
